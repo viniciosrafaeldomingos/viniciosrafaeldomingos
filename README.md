@@ -1,16 +1,12 @@
-### Hi there 👋
+### Aoba bem vindo au meu perfil
+Prazer me chamo vinicios tenho 14 anos quase 15 
 
-<!--
-**viniciosrafaeldomingos/viniciosrafaeldomingos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Atualmente não estou trabalahndo
+- Estou cursando o primeiro grau do ensino medio
+- Gosto bastante de animais
+- Estou morando em araruna PR
+- Sou bem amigavel
+- Tenho bastante disposição 
+- Estou fazendo um curso de concerto de aparelhos celulares
+- Amante de tecnologia 
+- 
