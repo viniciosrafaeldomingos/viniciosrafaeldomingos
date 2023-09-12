@@ -9,4 +9,3 @@ Prazer me chamo vinicios tenho 14 anos quase 15
 - Tenho bastante disposição 
 - Estou fazendo um curso de concerto de aparelhos celulares
 - Amante de tecnologia 
-- 
